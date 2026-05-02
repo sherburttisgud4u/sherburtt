@@ -1,7 +1,7 @@
-## Ｈｅｌｌｏ, ｈａｉ! ヾ(•ω•`)o
+## _WELCOME_ ᶻ 𝗓 𐰁 .ᐟ
 
+<img width="1280" height="720" alt="celestiagiftest" src="https://github.com/user-attachments/assets/b1313400-7179-4283-8b73-b03544059ca8" />
 ![divider](https://files.catbox.moe/s6yn54.png)
-<img width="1280" height="720" alt="025wmynq5mwg1" src="https://github.com/user-attachments/assets/ef352ee8-63c8-4917-af4f-2a8eeab8afe0" />
 
 ***i wish i had a spamton to my tenna goshhh sighhhhsss sighh 🥺😔😔***
 
@@ -35,6 +35,11 @@ invincible, the boys, dandy's world, mc args, fnaf!!
 ![gif](https://files.catbox.moe/ikstjh.jpg)
 ![gif](https://files.catbox.moe/fqch2s.png)
 ![gif](https://files.catbox.moe/csxbsa.webp)
+![gif](https://files.catbox.moe/pow5rr.webp)
+![image](https://files.catbox.moe/v4h8qr.png)  
+
+
+
 ![gif](https://files.catbox.moe/pow5rr.webp)
 ![image](https://files.catbox.moe/v4h8qr.png)  
 
