@@ -2,7 +2,7 @@
 
 <img width="1280" height="720" alt="025wmynq5mwg1" src="https://github.com/user-attachments/assets/b9a90e88-7b16-47c7-9ca6-60647fe2514d" />
 
-<img width="1280" height="100" alt="images-removebg-preview" src="https://github.com/user-attachments/assets/b03d20d3-3ced-4535-9f6a-41725b9fa3cb" />
+https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/tumblr_llo0b8jfy91qcwgz5_519e6f249606ee6c5259d4bc.png
 
 ***i wish i had a spamton to my tenna goshhh sighhhhsss sighh 🥺😔😔***
 
