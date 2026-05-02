@@ -2,7 +2,7 @@
 
 <img width="1280" height="720" alt="025wmynq5mwg1" src="https://github.com/user-attachments/assets/b9a90e88-7b16-47c7-9ca6-60647fe2514d" />
 
-<img width="340" height="60" alt="tumblr_llo0b8jfy91qcwgz5_519e6f249606ee6c5259d4bc" src="https://github.com/user-attachments/assets/26893d03-0f30-4df4-9651-8b352464e34a" />
+<img width="340" height="40" alt="tumblr_llo0b8jfy91qcwgz5_519e6f249606ee6c5259d4bc" src="https://github.com/user-attachments/assets/26893d03-0f30-4df4-9651-8b352464e34a" />
 
 ***i wish i had a spamton to my tenna goshhh sighhhhsss sighh 🥺😔😔***
 
