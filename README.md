@@ -1,8 +1,8 @@
 ## Ｈｅｌｌｏ, ｈａｉ! ヾ(•ω•`)o
 
-![gif](<img width="1280" height="720" alt="celestiagiftest" src="https://github.com/user-attachments/assets/91854835-00b7-4261-be74-35be6aaf0d50" />
-)
+![image]()
 ![divider](https://files.catbox.moe/s6yn54.png)
+<img width="1280" height="720" alt="celestiagiftest" src="https://github.com/user-attachments/assets/69b9e402-ef4d-4a55-860b-76d9671247a8" />
 
 ***i wish i had a spamton to my tenna goshhh sighhhhsss sighh 🥺😔😔***
 
