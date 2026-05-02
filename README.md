@@ -1,6 +1,6 @@
 ## Ｈｅｌｌｏ, ｈａｉ! ヾ(•ω•`)o
 
-![image](<img width="220" height="124" alt="horrortale-sans" src="https://github.com/user-attachments/assets/dcd8296e-b35d-40c6-804b-a0e70b3933ba" />)
+![image](<img width="220" height="124" alt="horrortale-sans" src="https://github.com/user-attachments/assets/dcd8296e-b35d-40c6-804b-a0e70b3933ba" />
 ![divider](https://files.catbox.moe/s6yn54.png)
 
 ***i wish i had a spamton to my tenna goshhh sighhhhsss sighh 🥺😔😔***
