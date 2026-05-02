@@ -1,8 +1,7 @@
 ## Ｈｅｌｌｏ, ｈａｉ! ヾ(•ω•`)o
 
-![image]()
 ![divider](https://files.catbox.moe/s6yn54.png)
-<img width="1280" height="720" alt="025wmynq5mwg1" src="https://github.com/user-attachments/assets/ef352ee8-63c8-4917-af4f-2a8eeab8afe0" />
+![image]<img width="1280" height="720" alt="025wmynq5mwg1" src="https://github.com/user-attachments/assets/ef352ee8-63c8-4917-af4f-2a8eeab8afe0" />
 
 ***i wish i had a spamton to my tenna goshhh sighhhhsss sighh 🥺😔😔***
 
