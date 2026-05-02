@@ -1,7 +1,6 @@
 ## Ｈｅｌｌｏ, ｈａｉ! ヾ(•ω•`)o
 
-![image](<img width="1280" height="720" alt="celestiagiftest" src="https://github.com/user-attachments/assets/1c671b5a-71b4-471b-8491-e260c01c2def" />
-)
+![image](https://preview.redd.it/025wmynq5mwg1.gif?width=1280&format=mp4&s=c41165c09dfacc830386a24b8133eceeb2c260c0)
 ![divider](https://files.catbox.moe/s6yn54.png)
 
 ***i wish i had a spamton to my tenna goshhh sighhhhsss sighh 🥺😔😔***
