@@ -4,7 +4,8 @@
 
 <img width="340" height="40" alt="tumblr_llo0b8jfy91qcwgz5_519e6f249606ee6c5259d4bc"              src="https://github.com/user-attachments/assets/26893d03-0f30-4df4-9651-8b352464e34a" />
 
-***Ｈｅｌｌｏ, ｈａｉ !!!***
+__ᵒˢʰⁱˢ ^_^__
+
 
 
 
