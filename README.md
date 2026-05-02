@@ -1,6 +1,6 @@
 ## _WELCOME_ ᶻ 𝗓 𐰁 .ᐟ
 
-<img width="1280" height="720" alt="celestiagiftest" src="https://github.com/user-attachments/assets/b1313400-7179-4283-8b73-b03544059ca8" />
+<img width="1280" height="720" alt="025wmynq5mwg1" src="https://github.com/user-attachments/assets/b9a90e88-7b16-47c7-9ca6-60647fe2514d" />
 
 ![divider](https://files.catbox.moe/s6yn54.png)
 
