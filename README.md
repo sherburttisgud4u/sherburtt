@@ -1,6 +1,6 @@
 ## Ｈｅｌｌｏ, ｈａｉ! ヾ(•ω•`)o
 
-![image](https://i.pinimg.com/1200x/92/15/4a/92154ade4bbc30389e0f48befd76e45f.jpg)
+![image](https://preview.redd.it/025wmynq5mwg1.gif?width=1280&format=mp4&s=c41165c09dfacc830386a24b8133eceeb2c260c0)
 ![divider](https://files.catbox.moe/s6yn54.png)
 
 ***i wish i had a spamton to my tenna goshhh sighhhhsss sighh 🥺😔😔***
