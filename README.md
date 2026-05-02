@@ -2,7 +2,7 @@
 
 <img width="1280" height="720" alt="025wmynq5mwg1" src="https://github.com/user-attachments/assets/b9a90e88-7b16-47c7-9ca6-60647fe2514d" />
 
-<img width="1280" height="46" alt="images-removebg-preview" src="https://github.com/user-attachments/assets/b03d20d3-3ced-4535-9f6a-41725b9fa3cb" />
+<img width="1280" height="70" alt="images-removebg-preview" src="https://github.com/user-attachments/assets/b03d20d3-3ced-4535-9f6a-41725b9fa3cb" />
 
 ***i wish i had a spamton to my tenna goshhh sighhhhsss sighh 🥺😔😔***
 
