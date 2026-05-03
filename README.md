@@ -5,6 +5,8 @@
 __ᵒˢʰⁱˢ ^_^__
 <img width="70" height="20" alt="th_1-2" src="https://github.com/user-attachments/assets/71110473-f770-4735-a41f-54f0d0ad5805" />
 
+<img width="270" height="15" alt="stardivider" src="https://github.com/user-attachments/assets/0950ce8f-0e25-46de-9470-4720e254863b" />
+
 <img width="1920" height="1080" alt="oshissfr" src="https://github.com/user-attachments/assets/fbf23c29-7049-42ce-b6fe-c03f78ec8c38" />
 
 __utau__, __DELTARUNE__, object shows, solarballs,  
