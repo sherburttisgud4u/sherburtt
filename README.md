@@ -6,8 +6,7 @@
 
 __ᵒˢʰⁱˢ ^_^__
 
-![#1 Celestia] 
-<img width="300" height="300" alt="oshimaxxing (celestia)" src="https://github.com/user-attachments/assets/d406b4e7-d347-4734-8e03-343c9f4c0929" /> 
+<img width="1920" height="1080" alt="oshissfr" src="https://github.com/user-attachments/assets/fbf23c29-7049-42ce-b6fe-c03f78ec8c38" />
 
 __utau__, __DELTARUNE__, object shows, solarballs,  
 invincible, the boys, dandy's world, mc args, fnaf!!
