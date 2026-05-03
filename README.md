@@ -1,5 +1,7 @@
 ## ***Ｈｅｌｌｏ, ｈａｉ !!!***
 
+<img width="397" height="53" alt="pastelanimals" src="https://github.com/user-attachments/assets/2a59bacf-3e5a-4882-b7d4-f7e95928de56" />
+
 <img width="1280" height="720" alt="025wmynq5mwg1" src="https://github.com/user-attachments/assets/b9a90e88-7b16-47c7-9ca6-60647fe2514d" />
 
 __ᵒˢʰⁱˢ ^_^__
