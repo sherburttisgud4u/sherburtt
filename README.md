@@ -15,8 +15,10 @@ __ᵒˢʰⁱˢ ^_^__
 
 ![divider](https://files.catbox.moe/s6yn54.png)
 
-__utau__, __DELTARUNE__, object shows, solarballs,  
-invincible, the boys, dandy's world, mc args, fnaf!!
+<img width="1000" height="1000" alt="_oshimaxxing (simon)" src="https://github.com/user-attachments/assets/aed614a0-20d5-4827-91e4-799a7126eddf" />
+
+__What I like rn__
+MLP, Undertale, UT AUs, Simple simon, 
   
 ![gif](https://files.catbox.moe/a3z7mp.gif) ![gif](https://files.catbox.moe/lyvb8w.gif) ![gif](https://files.catbox.moe/1vwcfw.gif) ![gif](https://files.catbox.moe/vb8vux.gif)
   
