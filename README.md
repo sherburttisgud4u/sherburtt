@@ -22,7 +22,6 @@ invincible, the boys, dandy's world, mc args, fnaf!!
 
 ![gif](https://files.catbox.moe/a3z7mp.gif) ![gif](https://files.catbox.moe/lyvb8w.gif) ![gif](https://files.catbox.moe/1vwcfw.gif) ![gif](https://files.catbox.moe/vb8vux.gif)
   
-![image](![#1 Celestia] <img width="300" height="300" alt="oshimaxxing (celestia)" src="https://github.com/user-attachments/assets/d406b4e7-d347-4734-8e03-343c9f4c0929" />) 
 ![image](https://files.catbox.moe/j21opy.png) 
 ![image](https://files.catbox.moe/ia7psy.png)
 ![image](https://files.catbox.moe/2gx92d.png)
