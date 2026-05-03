@@ -6,8 +6,7 @@
 
 __ᵒˢʰⁱˢ ^_^__
 
-
-ᵒˢʰⁱˢ ^_^
+![#1 Celestia]
 
 ⟡ interests rn :
 __utau__, __DELTARUNE__, object shows, solarballs,  
