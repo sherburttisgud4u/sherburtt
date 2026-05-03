@@ -15,7 +15,7 @@ __ᵒˢʰⁱˢ ^_^__
 
 ![divider](https://files.catbox.moe/s6yn54.png)
 
-<img width="1000" height="1000" alt="_oshimaxxing (simon)" src="https://github.com/user-attachments/assets/aed614a0-20d5-4827-91e4-799a7126eddf" />
+<img width="300" height="300" alt="_oshimaxxing (simon)" src="https://github.com/user-attachments/assets/aed614a0-20d5-4827-91e4-799a7126eddf" />
 
 __What I like rn__
 MLP, Undertale, UT AUs, Simple simon, 
