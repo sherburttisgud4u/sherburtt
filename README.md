@@ -15,10 +15,12 @@ __ᵒˢʰⁱˢ ^_^__
 
 ![divider](https://files.catbox.moe/s6yn54.png)
 
+***Ｍｙ Ｙｕｍｅ ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾***
 <img width="300" height="300" alt="_oshimaxxing (simon)" src="https://github.com/user-attachments/assets/aed614a0-20d5-4827-91e4-799a7126eddf" />
 
 __What I like rn__
-MLP, Undertale, UT AUs, Simple simon, 
+MLP, undertale, UT AUs, simple simon, FNAF, 
+frickbears, severance, umsumame, TADC, the beatles
   
 ![gif](https://files.catbox.moe/a3z7mp.gif) ![gif](https://files.catbox.moe/lyvb8w.gif) ![gif](https://files.catbox.moe/1vwcfw.gif) ![gif](https://files.catbox.moe/vb8vux.gif)
   
