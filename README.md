@@ -7,7 +7,7 @@ __ᵒˢʰⁱˢ ^_^__
 
 <img width="1280" height="65" alt="stardivider" src="https://github.com/user-attachments/assets/0950ce8f-0e25-46de-9470-4720e254863b" />
 
-<img width="1920" height="1080" alt="oshissfr" src="https://github.com/user-attachments/assets/fbf23c29-7049-42ce-b6fe-c03f78ec8c38" />
+<img width="1920" height="510" alt="16e0de60-1454-4bd1-bfc6-add4094daa43" src="https://github.com/user-attachments/assets/ddcc4384-3b1d-493d-a3d8-bf7d3193231c" />
 
 __utau__, __DELTARUNE__, object shows, solarballs,  
 invincible, the boys, dandy's world, mc args, fnaf!!
