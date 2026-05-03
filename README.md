@@ -7,7 +7,7 @@
 __ᵒˢʰⁱˢ ^_^__
 
 ![#1 Celestia]
-
+https://canva.link/5iydl14i0e3kjwa
 ⟡ interests rn :
 __utau__, __DELTARUNE__, object shows, solarballs,  
 invincible, the boys, dandy's world, mc args, fnaf!!
