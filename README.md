@@ -9,6 +9,8 @@ __ᵒˢʰⁱˢ ^_^__
 
 <img width="1920" height="510" alt="16e0de60-1454-4bd1-bfc6-add4094daa43" src="https://github.com/user-attachments/assets/ddcc4384-3b1d-493d-a3d8-bf7d3193231c" />
 
+![divider](https://files.catbox.moe/s6yn54.png)
+
 __utau__, __DELTARUNE__, object shows, solarballs,  
 invincible, the boys, dandy's world, mc args, fnaf!!
 
