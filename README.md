@@ -2,9 +2,8 @@
 
 <img width="1280" height="720" alt="025wmynq5mwg1" src="https://github.com/user-attachments/assets/b9a90e88-7b16-47c7-9ca6-60647fe2514d" />
 
-<img width="70" height="20" alt="th_1-2" src="https://github.com/user-attachments/assets/71110473-f770-4735-a41f-54f0d0ad5805" />
-
 __ᵒˢʰⁱˢ ^_^__
+<img width="70" height="20" alt="th_1-2" src="https://github.com/user-attachments/assets/71110473-f770-4735-a41f-54f0d0ad5805" />
 
 <img width="1920" height="1080" alt="oshissfr" src="https://github.com/user-attachments/assets/fbf23c29-7049-42ce-b6fe-c03f78ec8c38" />
 
